@@ -2,6 +2,6 @@ Hello, my name is Siyash. My surname is Yusifov. I am working as a freelancer as
 
 Contact us: linkedin.com/in/siyashx/
             instagram.com/siyashx
-            instagram.com/dual_si_software
+            instagram.com/code_supreme
            
           
